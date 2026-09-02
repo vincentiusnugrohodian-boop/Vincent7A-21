@@ -1,3 +1,3 @@
 # Vincentius Dian Nugroho
-Bermain basket dan
-Bersyukur kemarin bisa mengerjakan dengan lancar
+Hobi daya bermain basket dan kemarin saya
+Bersyukur  bisa mengerjakan dengan lancar
